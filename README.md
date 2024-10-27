@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kwadwo-collab
 - 👀 I’m interested in gaming
-- 🌱 I’m currently learning htmland a bit of phyton
+- 🌱 I’m currently learning html and a bit of phyton
 - 💞️ I’m looking to collaborate on a big company in future
 - 📫 How to reach me kwadwoamrado@gmail.com 
 - 😄 Pronouns: i love gaming
